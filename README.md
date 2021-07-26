@@ -1,0 +1,1 @@
+This is first project. You are a baby, but we must all take baby spells first. Have to suck at something before you become good. 
